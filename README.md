@@ -22,6 +22,7 @@ the results are pictured and felt
 
 Meaning isn’t just about what you want to think or talk about—it’s about feeling in a deeper way. It is believed that imagining a goal and actually experiencing the emotions associated with achieving it strengthens your self-expression. For example, if you want to show off a new job, imagine not only getting the job, but also feeling happy, proud and satisfied
 
+KNOW MORE >> https://sites.google.com/view/oneclickmanifest/home
 clear intentions and goals
 
 Clear and specific intent is essential for effective disclosure. Ambiguous desires (e.g., "I want more money") can lead to ambiguous outcomes. But when you're specific (e.g., "I want to make $10,000 in the next three months through my freelance work"), your focus is precise, which can make your efforts more powerful
